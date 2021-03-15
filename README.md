@@ -37,3 +37,11 @@ https://www.ebay.com/itm/2-4-5Ghz-Dual-Band-Wireless-USB-WiFi-Network-Adapter-80
 https://www.amazon.com/gp/product/B008IFXQFU/ref=ppx_yo_dt_b_asin_title_o00_s01
 
 ![](https://github.com/kevin11h/WiFi-Adapter-Card-Best-Wireless-adapater/blob/main/spec-comp-wifi-adapter.png?raw=true)
+
+
+https://www.ebay.com/itm/NEW-2020-Mini-USB-WiFi-WLAN-Wireless-Network-Adapter-802-11-Dongle-RTL8188-lot/133654803595?_trkparms=aid%3D555023%26algo%3DHOMESPLICE.SIMRVI%26ao%3D1%26asc%3D20210125103153%26meid%3D864bffa1a2354f82b865fb4065308597%26pid%3D100040%26rk%3D6%26rkt%3D24%26sd%3D154372540043%26itm%3D133654803595%26pmt%3D1%26noa%3D0%26pg%3D2046732%26algv%3DSimplAMLv5hPointwiseWebNoToraCoCoViewsNoHighIdfOrRoundRobinBlenderWithPromotedViewItems%26brand%3DUnbranded&_trksid=p2046732.c100040.m2060
+
+
+https://www.ebay.com/itm/1200Mbps-Dual-Band-2-4GHz-5GHz-Wireless-USB-3-0-WiFi-Adapter-802-11AC-w-Antenna/311802869383?_trkparms=aid%3D555023%26algo%3DHOMESPLICE.SIMRVI%26ao%3D1%26asc%3D20210125103153%26meid%3D864bffa1a2354f82b865fb4065308597%26pid%3D100040%26rk%3D7%26rkt%3D24%26mehot%3Dpp%26sd%3D154372540043%26itm%3D311802869383%26pmt%3D1%26noa%3D0%26pg%3D2046732%26algv%3DSimplAMLv5hPointwiseWebNoToraCoCoViewsNoHighIdfOrRoundRobinBlenderWithPromotedViewItems&_trksid=p2046732.c100040.m2060
+
+https://www.ebay.com/itm/3-in-1-USB-Bluetooth-5-0-Audio-Transmitter-Receiver-Adapter-For-TV-PC-Car-Grace/143580641242?_trkparms=aid%3D555023%26algo%3DHOMESPLICE.SIMRVI%26ao%3D1%26asc%3D20210125103153%26meid%3D864bffa1a2354f82b865fb4065308597%26pid%3D100040%26rk%3D16%26rkt%3D24%26mehot%3Dpp%26sd%3D154372540043%26itm%3D143580641242%26pmt%3D1%26noa%3D0%26pg%3D2046732%26algv%3DSimplAMLv5hPointwiseWebNoToraCoCoViewsNoHighIdfOrRoundRobinBlenderWithPromotedViewItems%26brand%3DUnbranded&_trksid=p2046732.c100040.m2060
