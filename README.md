@@ -31,3 +31,8 @@ https://www.ebay.com/itm/NEW-2020-Mini-USB-WiFi-WLAN-Wireless-Network-Adapter-80
 .https://www.ebay.com/itm/600Mbps-Wireless-USB-Wifi-Adapter-Dongle-Dual-Band-2-4G-5GHz-W-Antenna-802-11AC/113957361447?_trkparms=aid%3D1110006%26algo%3DHOMESPLICE.SIM%26ao%3D1%26asc%3D20201210111314%26meid%3D4d2aa357753a4a9184968a2d1432cd41%26pid%3D101195%26rk%3D4%26rkt%3D12%26mehot%3Dco%26sd%3D192774347242%26itm%3D113957361447%26pmt%3D1%26noa%3D0%26pg%3D2047675%26algv%3DSimplAMLv9PairwiseUnbiasedWeb%26brand%3DUnbranded&_trksid=p2047675.c101195.m1851
 
 https://www.ebay.com/itm/2-4-5Ghz-Dual-Band-Wireless-USB-WiFi-Network-Adapter-802-11AC-w-Antenna/363111689769?_trkparms=aid%3D1110018%26algo%3DHOMESPLICE.COMPLISTINGS%26ao%3D1%26asc%3D20201210111452%26meid%3Dafffab478691415d953343167a0a0129%26pid%3D101196%26rk%3D3%26rkt%3D12%26mehot%3Dag%26sd%3D192774347242%26itm%3D363111689769%26pmt%3D1%26noa%3D0%26pg%3D2047675%26algv%3DItemStripV101HighAdFee%26brand%3DUnbranded&_trksid=p2047675.c101196.m2219
+
+
+
+https://www.amazon.com/gp/product/B008IFXQFU/ref=ppx_yo_dt_b_asin_title_o00_s01
+
