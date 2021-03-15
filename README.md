@@ -36,3 +36,4 @@ https://www.ebay.com/itm/2-4-5Ghz-Dual-Band-Wireless-USB-WiFi-Network-Adapter-80
 
 https://www.amazon.com/gp/product/B008IFXQFU/ref=ppx_yo_dt_b_asin_title_o00_s01
 
+![](https://github.com/kevin11h/WiFi-Adapter-Card-Best-Wireless-adapater/blob/main/spec-comp-wifi-adapter.png?raw=true)
